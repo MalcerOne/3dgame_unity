@@ -11,3 +11,9 @@ But there is a problem...There is a bigger reactor in the lab and these robots k
 Everyone is in danger and you can't let them do it!
 
 Do you take the risk?
+
+Referências principais:
+https://www.youtube.com/watch?v=rJqP5EesxLk&list=PLGUw8UNswJEOv8c5ZcoHarbON6mIEUFBC 
+https://www.youtube.com/watch?v=THnivyG0Mvo 
+https://www.youtube.com/watch?v=UjkSFoLxesw 
+https://www.youtube.com/watch?v=BLfNP4Sc_iA
